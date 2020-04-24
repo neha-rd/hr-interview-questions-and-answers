@@ -22,8 +22,21 @@ Here are 5 mistakes you need to avoid when using the STAR Method:
 - 2. Not being prepared. (Practice your success stories. Trying to use the star method on the spot is incredibly tough.)
 - 3. Being too much prepared. (Obviously you need to prepare but don’t practice your answers to the point where you start to sound robotic. Try and keep things conversational.)
 
-#HR Interview Questions and Answers
+# Behavioral Interview Questions and Answers for Experienced
 <br/>
 <img src="https://www.best-job-interview.com/images/Fotolia_62440832_XS.jpg" />
 <br/>
+## Tell me about an incident where you worked effectively under pressure.
+## Describe a bad experience you had working with your ex-employer.
+## Describe how you handle disagreement.
+## Explain a situation when you explained a complex idea simply.
+## Describe a time when you had to adapt to a change at work.
+## Describe a time when you made a mistake.
+## Describe a time when you delegated tasks to team-mates.
+## Describe when you were blamed for somebody else’s mistake.
+## Describe a difficult situation that you faced and how you handled it.
+## Describe a new suggestion that you had made to your supervisor.
+## Describe when you had to take a judgement on a difficult decision.
 ## 
+
+# General Interview Questions and Answers for Experienced
