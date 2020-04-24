@@ -64,5 +64,18 @@ Here are 5 mistakes you need to avoid when using the STAR Method:
 >  Describe when you had to take a judgement on a difficult decision.
 - Answer 
  
-
 # General Interview Questions and Answers for Experienced
+> Why did you leave (or why are you planning to leave) your last
+position?
+- I had been with the organization for a number of years and wanted to experience a new environment to continue growing.
+- I was hired for a certain role, but over time that changed and I was no longer being given the opportunity to do the work I was interested in.
+- I wanted to take on new responsibilities that this role and company couldn’t offer.
+- I love my current role and my boss, but the company structure just doesn't allow me to take on new responsibilities.
+- To be honest, I wasn't considering a change, but a former colleague recommended this job to me. I looked into the position and was intrigued by the role and by the company. What you're offering sounds like an exciting opportunity and an ideal match for my qualifications.
+
+> Why do you want to work here?
+- I did some research and selected the companies I am most interested in working for, and yours is at the top of my list. I conducted my research on the basis of the company’s reputation, product reliability, and industry stability, as well as how current employees would rate working for the company. I work best when my goals and values are in sync with the company’s goals and values. I know that I would be a good fit in this company’s culture and that I have a lot to contribute.
+- I found the job posting on the Internet. The job is a perfect match for my skills and abilities. I see this as a real opportunity to find a challenge. I want to work for a company where I can grow and develop and be challenged. I am looking for a company with a solid financial record and industry standing—like yours. I know I would fit in here and be able to “put down roots.”
+- Your company's reputation is stellar. Former colleagues of mine work here, and I've seen how much they value the company's willingness to let employees pitch big ideas and have an active leadership role in new initiatives.
+- I did some research and selected the companies I am most interested in working for, and yours is at the top of my list. I conducted my research on the basis of the company’s reputation, product reliability, and industry stability, as well as how current employees would rate working for the company. I work best when my goals and values are in sync with the company’s goals and values. I know that I would be a good fit in this company’s culture and that I have a lot to contribute.
+- I found the job posting on the Internet. The job is a perfect match for my skills and abilities. I see this as a real opportunity to find a challenge. I want to work for a company where I can grow and develop and be challenged. I am looking for a company with a solid financial record and industry standing—like yours. I know I would fit in here and be able to “put down roots.”
