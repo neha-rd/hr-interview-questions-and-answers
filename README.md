@@ -26,17 +26,41 @@ Here are 5 mistakes you need to avoid when using the STAR Method:
 <br/>
 <img src="https://www.best-job-interview.com/images/Fotolia_62440832_XS.jpg" />
 <br/>
-## Tell me about an incident where you worked effectively under pressure.
-## Describe a bad experience you had working with your ex-employer.
-## Describe how you handle disagreement.
-## Explain a situation when you explained a complex idea simply.
-## Describe a time when you had to adapt to a change at work.
-## Describe a time when you made a mistake.
-## Describe a time when you delegated tasks to team-mates.
-## Describe when you were blamed for somebody else’s mistake.
-## Describe a difficult situation that you faced and how you handled it.
-## Describe a new suggestion that you had made to your supervisor.
-## Describe when you had to take a judgement on a difficult decision.
-## 
+
+> Tell me about an incident where you worked effectively under pressure.
+- Throughout my career, I have done some of my best work under pressure. I find that routine makes us complacent, and I am always looking for challenges that push me to give my best and to quickly come up with working solutions.
+
+One time I was supposed to deliver a project to a client in five days. A colleague who was working with another client had the same deadline, but he had to take a leave of absence due to personal reasons. I was forced to take up both projects at the same time, but I did not let the stress affect me. Instead, I came up with a very detailed time management plan and found new ways to boost my efficiency that enabled me to deliver both projects on time.
+
+> Describe a bad experience you had working with your ex-employer.
+- Answer 
+
+> Describe how you handle disagreement.
+- Answer 
+
+>  Explain a situation when you explained a complex idea simply.
+- Answer 
+
+>  Describe a time when you had to adapt to a change at work.
+- Answer 
+
+>  Describe a time when you made a mistake.
+- Answer 
+
+>  Describe a time when you delegated tasks to team-mates.
+- Answer 
+
+>  Describe when you were blamed for somebody else’s mistake.
+- Answer 
+
+>  Describe a difficult situation that you faced and how you handled it.
+- Answer 
+
+>  Describe a new suggestion that you had made to your supervisor.
+- Answer 
+
+>  Describe when you had to take a judgement on a difficult decision.
+- Answer 
+ 
 
 # General Interview Questions and Answers for Experienced
