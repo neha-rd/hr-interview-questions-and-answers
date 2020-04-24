@@ -32,6 +32,9 @@ Here are 5 mistakes you need to avoid when using the STAR Method:
 
 One time I was supposed to deliver a project to a client in five days. A colleague who was working with another client had the same deadline, but he had to take a leave of absence due to personal reasons. I was forced to take up both projects at the same time, but I did not let the stress affect me. Instead, I came up with a very detailed time management plan and found new ways to boost my efficiency that enabled me to deliver both projects on time.
 
+- I am able to thrive under multiple deadlines and projects. For example, I once had to work on three large projects that were all due in the same week. However, by prioritising my responsibilities, working effectively with my colleagues and putting in the extra effort, I was able to complete all three projects ahead of time and avoid any unnecessary stress.
+
+
 > Describe a bad experience you had working with your ex-employer.
 - Answer 
 
