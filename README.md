@@ -28,18 +28,17 @@ Here are 5 mistakes you need to avoid when using the STAR Method:
 <br/>
 
 > Tell me about an incident where you worked effectively under pressure.
-- Throughout my career, I have done some of my best work under pressure. I find that routine makes us complacent, and I am always looking for challenges that push me to give my best and to quickly come up with working solutions.
-
-One time I was supposed to deliver a project to a client in five days. A colleague who was working with another client had the same deadline, but he had to take a leave of absence due to personal reasons. I was forced to take up both projects at the same time, but I did not let the stress affect me. Instead, I came up with a very detailed time management plan and found new ways to boost my efficiency that enabled me to deliver both projects on time.
+- Throughout my career, I have done some of my best work under pressure. I find that routine makes us complacent, and I am always looking for challenges that push me to give my best and to quickly come up with working solutions. One time I was supposed to deliver a project to a client in five days. A colleague who was working with another client had the same deadline, but he had to take a leave of absence due to personal reasons. I was forced to take up both projects at the same time, but I did not let the stress affect me. Instead, I came up with a very detailed time management plan and found new ways to boost my efficiency that enabled me to deliver both projects on time.
 
 - I am able to thrive under multiple deadlines and projects. For example, I once had to work on three large projects that were all due in the same week. However, by prioritising my responsibilities, working effectively with my colleagues and putting in the extra effort, I was able to complete all three projects ahead of time and avoid any unnecessary stress.
 
 
-> Describe a bad experience you had working with your ex-employer.
-- Answer 
+> Describe a bad experience you had working with your ex-employer/manager.
+- 
 
-> Describe how you handle disagreement.
-- Answer 
+> Describe how you handle disagreement. OR Tell me about a time you disagreed with your supervisor about how something should be done. How did you deal with it?
+- I’ve never had a large disagreement with a supervisor, however there was a time I had been working on a large project for 6 weeks. Another specialized project came in and my supervisor asked me to hand the project off to a colleague to begin work on this new one. I was only a week away from completing the project and presenting it to the client and really wanted to finish what I started. After giving it some thought, I spoke to my supervisor and asked if this new project couldn’t wait a few more days. We talked it over and compromised on having a colleague assist me to finish my initial project faster so that I could start working 
+- I had a boss that regularly forced overtime on employees at the last minute with no opportunity to make personal arrangements. I spoke with him at length about morale, and eventually, he started giving the notice sooner, making everyone's lives easier.
 
 >  Explain a situation when you explained a complex idea simply.
 - Answer 
